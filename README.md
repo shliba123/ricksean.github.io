@@ -1,1 +1,0 @@
-# ricksean.github.io
